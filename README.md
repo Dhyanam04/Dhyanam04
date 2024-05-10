@@ -1,5 +1,5 @@
 ## Hi there Everyone👋
-I am Dhyanam, Currently a Sophomore, Working on sharpening my skills in the field of computer science.
+I am Dhyanam, Currently a Pre-Final year Student, Working on sharpening my skills in the field of computer science.
 
 
 ## About Me 😉
